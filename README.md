@@ -6,4 +6,7 @@
 ♡[straw](https://foretnoir.straw.page) ![h](https://files.catbox.moe/ypcghd.gif) [ata](https://elysianrealmego.atabook.org/) ![h](https://files.catbox.moe/ypcghd.gif) [rentry](https://rentry.co/foretnoir)![h](https://files.catbox.moe/ypcghd.gif) [prns.page](https://en.pronouns.page/@foretnoir_)♡
 
 ![h](https://files.catbox.moe/0zr9lj.jpg)
-![h](https://files.catbox.moe/69sutv.gif) main @ [🍓](https://github.com/elysianrealmego) ,, 🍒
+![h](https://files.catbox.moe/69sutv.gif) main @ [🍓](https://github.com/elysianrealmego) ,, 🍒 ![h](https://files.catbox.moe/jztkgh.gif)
+
+![h](https://files.catbox.moe/bwn937.jpg)
+**｡˚.𖧧 𑁍 𖧧.˚｡** ![h](https://files.catbox.moe/nn5qj9.png)
