@@ -2,8 +2,8 @@
 
 
 
-![h](https://files.catbox.moe/mhh04f.jpg)
-![h](https://files.catbox.moe/wdx1sb.jpg)
+![h](https://files.catbox.moe/v78r0z.png)
+![h](https://files.catbox.moe/vwgsoa.png)
 ♡[straw](https://foretnoir.straw.page) ![h](https://files.catbox.moe/ypcghd.gif) [ata](https://elysianrealmego.atabook.org/) ![h](https://files.catbox.moe/ypcghd.gif) [rentry](https://rentry.co/foretnoir)![h](https://files.catbox.moe/ypcghd.gif) [prns.page](https://en.pronouns.page/@foretnoir_)♡
 
 ![h](https://files.catbox.moe/0zr9lj.jpg)
