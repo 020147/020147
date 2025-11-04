@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　DAWNBRINGER　🪽　　　&color=FFFFFF&style=flat" alt="angelweep" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　536c617368656420447265616d　🪽　　　&color=FFFFFF&style=flat" alt="angelweep" />
 
 
 
