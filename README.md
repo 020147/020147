@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　dawnbringer　🍓　　　&color=ef2020&style=flat" alt="angelweep" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　64 61 77 6e 62 72 69 6e 67 65 72 　🪽　　　&color=ef2020&style=flat" alt="angelweep" />
 
 
 ![h](https://files.catbox.moe/mhh04f.jpg)
