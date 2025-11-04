@@ -13,5 +13,5 @@
 **｡˚.𖧧 𑁍 𖧧.˚｡** ♡ **wlc irl** ^_^)🤍
 𝓒𝓸𝓶𝓮 𝓫𝓪𝓬𝓴 𝓽𝓸 𝓶𝓮,𝓶𝔂 𝓼𝓽𝓪𝓻𝓵𝓲𝓰𝓱𝓽,, **𝗍𝗀𝗍𝟦𝖾𝗏𝖾𝗋 🗝**
 ![h](https://files.catbox.moe/w41uk0.gif)
-![h](https://files.catbox.moe/u2s1fl.png)
-![h](https://files.catbox.moe/wgx2pu.png)
+![h](https://files.catbox.moe/t4ez9v.png)
+![h](https://files.catbox.moe/t7h66p.png)
