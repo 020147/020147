@@ -4,7 +4,7 @@
 
 ![h](https://files.catbox.moe/v78r0z.png)
 ![h](https://files.catbox.moe/w41uk0.gif)
-♡[straw](https://foretnoir.straw.page) ![h](https://files.catbox.moe/h0uf0v.gif) [ata](https://elysianrealmego.atabook.org/) ![h](https://files.catbox.moe/ypcghd.gif) [rentry](https://rentry.co/foretnoir)![h](https://files.catbox.moe/ypcghd.gif) [prns.page](https://en.pronouns.page/@foretnoir_)♡
+♡[straw](https://foretnoir.straw.page) ![h](https://files.catbox.moe/h0uf0v.gif) [ata](https://elysianrealmego.atabook.org/) ![h](https://files.catbox.moe/h0uf0v.gif) [rentry](https://rentry.co/foretnoir)![h](https://files.catbox.moe/h0uf0v.gif) [prns.page](https://en.pronouns.page/@foretnoir_)♡
 
 ![h](https://files.catbox.moe/0zr9lj.jpg)
 ![h](https://files.catbox.moe/69sutv.gif) main @ [🍓](https://github.com/elysianrealmego) ,, 🍒 ![h](https://files.catbox.moe/jztkgh.gif)
