@@ -8,9 +8,9 @@
 ![h](https://files.catbox.moe/6sqrcj.gif)𝔅𝔩𝔞𝔷𝔢 𝔬𝔯 Pompom. 💉 ‘ he/they ’  .
 ![h](https://files.catbox.moe/6sqrcj.gif) [prns🐾](https://en.pronouns.page/@foretnoir_) 🧷 [straw🦇](https://020147.straw.page)
 ![h](https://files.catbox.moe/qctmzd.gif)
-![h](https://files.catbox.moe/sho770.gif) main @ (🖤)[https://github.com/elysianrealmego]
-![https://files.catbox.moe/sho770.gif] c+h/w2i or int freely. mostly on 18+ or safe server around docks, twst area ,crk and hoyo area,, if i cant see your msgs pls whisp :]
-![https://files.catbox.moe/sho770.gif] use tonetags pls.
+![h](https://files.catbox.moe/sho770.gif) main @ [🖤](https://github.com/elysianrealmego)
+![h](https://files.catbox.moe/sho770.gif) c+h/w2i or int freely. mostly on 18+ or safe server around docks, twst area ,crk and hoyo area,, if i cant see your msgs pls whisp :]
+![h](https://files.catbox.moe/sho770.gif) use tonetags pls.
 ![h](https://files.catbox.moe/n6ccpz.gif)
 
 
