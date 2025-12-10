@@ -1,4 +1,4 @@
-#> (atabook🦇💉)[https://elysianrealmego.atabook.org/) 🎲 (clrmytree)[https://colormytree.me/2025/01KBHXGJ6B55A8KG2QK6FN4WHQ]
+(atabook🦇💉)[https://elysianrealmego.atabook.org/) 🎲 (clrmytree)[https://colormytree.me/2025/01KBHXGJ6B55A8KG2QK6FN4WHQ]
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　dawnbringer　💉　　　&color=e3242b&style=flat" alt="angelweep" />
 
