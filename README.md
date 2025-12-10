@@ -14,13 +14,18 @@
 ![h](https://files.catbox.moe/qctmzd.gif)
 
 ![h](https://files.catbox.moe/sho770.gif)
- main @ [🖤](https://github.com/elysianrealmego)
+ main @ [🖤](https://github.com/elysianrealmego) ![h](https://files.catbox.moe/sfy8lg.gif) ![h](https://files.catbox.moe/gjh9px.gif) ![h](https://files.catbox.moe/umhyr8.png)
 
 ![h](https://files.catbox.moe/sho770.gif)
  c+h/w2i or int freely. mostly on 18+ or safe server around docks, twst area ,crk and hoyo area,, if i cant see your msgs pls whisp :]
-
+![h](https://files.catbox.moe/rxe7hg.gif)
+![h](https://files.catbox.moe/zpmoid.gif)
+![h](https://files.catbox.moe/qfjaa8.jpg)
 ![h](https://files.catbox.moe/sho770.gif) use tonetags pls.
-
+![h](https://files.catbox.moe/xh22rh.jpg)
+![h](https://files.catbox.moe/yyeoyk.gif)
+![h](https://files.catbox.moe/r2jtqo.jpg)
+![h](https://files.catbox.moe/sbmjd9.gif)
 ![h](https://files.catbox.moe/n6ccpz.gif)
 
 
