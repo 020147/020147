@@ -1,5 +1,6 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　536c617368656420447265616duntilimyours　🪽　　　&color=FFFFFF&style=flat" alt="angelweep" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　dawnbringer　💉　　　&color=e3242b&style=flat" alt="angelweep" />
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=e3242b&width=435&lines=🎲the+wisest+and+kindest+🎼)](https://git.io/typing-svg)
 
 
 ![h](https://files.catbox.moe/v78r0z.png)
