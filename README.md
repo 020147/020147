@@ -6,9 +6,10 @@
 ![h](https://files.catbox.moe/5158m7.jpg)
 
 ![h](https://files.catbox.moe/6sqrcj.gif)𝔅𝔩𝔞𝔷𝔢 𝔬𝔯 Pompom. 💉 ‘ he/they ’  .
+![h](https://files.catbox.moe/m82b3g.gif) ![h](https://files.catbox.moe/f8u9rn.gif) ![h](https://files.catbox.moe/9urx0u.jpg)
 
 ![h](https://files.catbox.moe/6sqrcj.gif)
- [prns🐾](https://en.pronouns.page/@foretnoir_) 🧷 [straw🦇](https://020147.straw.page)
+ [prns🐾](https://en.pronouns.page/@foretnoir_) 🧷 [straw🦇](https://020147.straw.page) ![h](https://files.catbox.moe/etlf9e.gif) ![h](https://files.catbox.moe/srdnij.gif) ![h](https://files.catbox.moe/e3calq.gif)
 
 ![h](https://files.catbox.moe/qctmzd.gif)
 
