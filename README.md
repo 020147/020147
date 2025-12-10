@@ -6,5 +6,5 @@
 ![h](https://files.catbox.moe/5158m7.jpg)
 
 ![h](https://files.catbox.moe/6sqrcj.gif)𝔅𝔩𝔞𝔷𝔢 𝔬𝔯 Pompom. 💉 ‘ he/they ’  .
-![h](https://files.catbox.moe/6sqrcj.gif) (prns🐾)[https://en.pronouns.page/@foretnoir_] 🧷 (straw)[https://020147.straw.page]
+![h](https://files.catbox.moe/6sqrcj.gif) [prns🐾](https://en.pronouns.page/@foretnoir_) 🧷 [straw](https://020147.straw.page)
 
